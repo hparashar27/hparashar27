@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hparashar617@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1PgZc9poGH8mt8V694cq1zhYI4RKsJlJU/view?usp=sharing](https://drive.google.com/file/d/1PgZc9poGH8mt8V694cq1zhYI4RKsJlJU/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1PgZc9poGH8mt8V694cq1zhYI4RKsJlJU/view?usp=sharing]
 
 - ⚡ Fun fact **I am flutist as well ⭐**
 
